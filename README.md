@@ -1,0 +1,2 @@
+# VeriTabaniOdevi
+Veri Tabani Odevi
